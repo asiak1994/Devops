@@ -1,0 +1,5 @@
+***********
+^^^^^^^^^^^
+GGGGGEEEEEEEEE
+TTT
+EEEEE
